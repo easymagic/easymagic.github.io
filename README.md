@@ -1,0 +1,1 @@
+# easymagic.github.io
